@@ -20,186 +20,156 @@
 
 ---
 
-## 🛡️ Daily Essentials (The Foundation)
+## 1️⃣ Fundamental & Foundational Surahs and Verses
 
-These form the non-negotiable baseline of daily spiritual protection. Recite every morning and evening.
+*Essential for everyone to know and practice first*
 
-| # | Surah / Verse | Name | Purpose |
-|---|---------------|------|---------|
-| 1 | **Al-Fatihah (1:1–7)** | *The Opening* | The greatest Surah for healing; the Prophet ﷺ called it *"the greatest Surah in the Quran."* |
-| 2 | **Al-Baqarah (2:255)** | *Ayatul Kursi* | Protection from Shaytan, Jinn, and all harm. The greatest verse in the Book of Allah. |
-| 3 | **Al-Baqarah (2:285–286)** | *The Seal of Al-Baqarah* | Given from beneath the Throne. Reciting them at night provides sufficient protection. |
-| 4 | **Al-Kafirun (109)** | *The Disbelievers* | Purity of faith and disavowal of Shirk. |
-| 5 | **Al-Ikhlas (112)** | *Sincerity* | Equivalent to one-third of the Quran. |
-| 6 | **Al-Falaq (113)** | *The Daybreak* | Protection from evil creations, envy, and darkness. |
-| 7 | **An-Nas (114)** | *Mankind* | Protection from whisperings, possession, and hidden evils. |
-| 8 | **Bismillah** | *In the Name of Allah* | The first verse of Al-Fatihah; standalone protection when recited with sincerity. |
+| Reference | Name / Note |
+|-----------|-------------|
+| **Al-Fatiha (1:1–7)** | The Opening |
+| **Al-Baqarah (2:255)** | Ayatul Kursi |
+| **Al-Ikhlas (112:1–4)** | Sincerity |
+| **Al-Falaq (113:1–5)** | The Daybreak |
+| **An-Nas (114:1–6)** | Mankind |
+| **Bismillah** | First verse of Al-Fatihah or standalone phrase |
 
-**💡 Method:** Recite the Four Quls (Al-Kafirun, Al-Ikhlas, Al-Falaq, An-Nas) **3 times each**, blow gently into your cupped hands, and wipe over your entire body from head to feet.
+✨ *These verses form the foundation of daily Ruqyah. Recite them every day.*
 
 ---
 
-## 📖 Quick Reference — Verses by Purpose
+## 2️⃣ Verses for Protection, Secrecy & Silencing
 
-### 2️⃣ Protection, Secrecy & Silencing
-*For Hifz (protection) and stopping the tongues of enemies.*
+*For Hifz and stopping harmful speech*
 
-| Reference | Notes |
-|-----------|-------|
-| **Ya-Sin (36:9)** | Divine barrier against those who reject truth. |
-| **Al-Mursalat (77:35)** | Silence before the reckoning. |
-| **Al-Baqarah (2:137)** | Steadfastness in the face of opposition. |
+| Reference | Purpose |
+|-----------|---------|
+| **Ya-Sin (36:9)** | Divine barrier against those who reject truth |
+| **Al-Mursalat (77:35)** | Silence before the reckoning |
+| **Al-Baqarah (2:137)** | Steadfastness in the face of opposition |
 | **Yusuf (12:64)** | *"Allah is the best guardian, and He is the Most Merciful of the merciful."* |
-| **Ar-Ra'd (13:11)** | Allah does not change a people's condition until they change. |
-| **Al-Hijr (15:17)** | Protection from every rebellious devil. |
-| **As-Saffat (37:7)** | Shielded from eavesdropping devils. |
-| **At-Tariq (86:4)** | Every soul has a guardian over it. |
+| **Ar-Ra'd (13:11)** | Allah does not change a people's condition until they change |
+| **Al-Hijr (15:17)** | Protection from every rebellious devil |
+| **As-Saffat (37:7)** | Shielded from eavesdropping devils |
+| **At-Tariq (86:4)** | Every soul has a guardian over it |
+
+🛡️ *For personal protection, maintaining confidentiality, and shielding against enemies' harm.*
 
 ---
 
-### 3️⃣ Subduing Enemies, Destruction & Severe Punishment
-*For seeking Allah's help against oppressors and wrongdoers (Halak).*
+## 3️⃣ Verses for Subduing Enemies, Destruction & Severe Punishment
 
-| Reference | Notes |
-|-----------|-------|
-| **Hud (11:102)** | Allah seizes tyrants with severe seizure. |
-| **Ghafir (40:21)** | The end of those who rejected the signs. |
-| **Al-An'am (6:45)** | The roots of wrongdoers cut off. |
-| **Ya-Sin (36:28–32)** | No messenger comes to a town but We destroy it. |
-| **Al-Hijr (15:95)** | Indeed, We are sufficient for you against the mockers. |
+*For Halak — causing destruction of oppression*
 
----
+| Reference | Purpose |
+|-----------|---------|
+| **Hud (11:102)** | Allah seizes tyrants with severe seizure |
+| **Ghafir (40:21)** | The end of those who rejected the signs |
+| **Al-An'am (6:45)** | The roots of wrongdoers cut off |
+| **Ya-Sin (36:28–32)** | Divine justice against those who reject messengers |
+| **Al-Hijr (15:95)** | *"Indeed, We are sufficient for you against the mockers."* |
 
-### 4️⃣ Love, Harmony & Breaking Love Magic
-*For restoring Mahabbah (affection) between spouses and family.*
-
-| Reference | Notes |
-|-----------|-------|
-| **Fussilat (41:11)** | *"Come, willingly or by compulsion."* — Decree of divine will. |
-| **Al-Baqarah (2:165)** | Those who believe are strongest in love for Allah. |
-| **Al-Anfal (8:63)** | Allah united their hearts; had you spent all wealth, you could not have. |
-| **Ta-Ha (20:39)** | Divine love and care in protection. |
-| **Aal-E-Imran (3:26–27)** | Allah gives sovereignty to whom He wills and takes it away. |
+⚡ *For seeking Allah's help against wrongdoers and enemies.*
 
 ---
 
-### 5️⃣ Untying Knots & Revealing Hidden Matters
-*For Kashf — opening blocked sustenance, magical knots, and spiritual bonds.*
+## 4️⃣ Verses for Love, Harmony & Breaking Love Magic
 
-| Reference | Notes |
-|-----------|-------|
-| **Al-An'am (6:59)** | With Him are the keys of the unseen; none knows them except Him. |
+*For Mahabbah — restoring love and affection*
+
+| Reference | Purpose |
+|-----------|---------|
+| **Fussilat (41:11)** | *"Come, willingly or by compulsion."* — Decree of divine will |
+| **Al-Baqarah (2:165)** | Those who believe are strongest in love for Allah |
+| **Al-Anfal (8:63)** | Allah united their hearts; had you spent all wealth, you could not have |
+| **Ta-Ha (20:39)** | Divine love and care in protection |
+| **Aal-e-Imran (3:26–27)** | Allah gives sovereignty to whom He wills and takes it away |
+
+💚 *For restoring marital harmony, love between spouses, and breaking love-related magic.*
+
+---
+
+## 5️⃣ Verses for Breaking Knots & Bonds
+
+*For Kashf — revealing hidden matters and untying bindings*
+
+| Reference | Purpose |
+|-----------|---------|
+| **Al-An'am (6:59)** | With Him are the keys of the unseen; none knows them except Him |
 | **Yusuf (12:101)** | *"You are my protector in this world and the Hereafter."* |
-| **Al-Baqarah (2:72–73)** | Allah brings forth what you conceal; the dead are brought to life by His command. |
+| **Al-Baqarah (2:72–73)** | Allah brings forth what you conceal; the dead are brought to life by His command |
+
+🔓 *For untying magical knots, breaking spiritual bonds, and removing blocked sustenance.*
 
 ---
 
-### 6️⃣ Jinn Expulsion & Control
-*For Tas'khir — subduing and expelling Jinn, Shayatin, and entities causing possession.*
+## 6️⃣ Verses for Controlling & Expelling Jinn
 
-| Reference | Notes |
-|-----------|-------|
-| **An-Naml (27:30–31)** | The letter of Sulayman (AS); submission to divine authority. |
-| **An-Naml (27:39)** | The jinn who offered to bring the throne before Sulayman rose. |
-| **Al-Mu'minun (23:80)** | He who gives life and causes death; to Him is your return. |
-| **Ghafir (40:68)** | *"Be," and it is* — His command is truth. |
-| **Al-A'raf (7:54)** | His command descends between the heavens and earth. |
-| **Aal-E-Imran (3:49)** | Jesus (AS) breathes into clay birds by Allah's permission. |
-| **Ar-Rum (30:25)** | His signs in the heavens and earth. |
-| **As-Saffat (37:1–182)** | *"The Surah of Power"* — Complete recitation for severe cases. |
-| **An-Najm (53:1–62)** | Full Surah; rebuke of those who follow misguidance. |
-| **Al-Qamar (54:1–55)** | The Hour has approached; recounting destroyed nations. |
-| **At-Tariq (86:1–17)** | Full Surah; by the sky and the night comer. |
-| **Al-A'raf (7:44)** | Curse upon transgressors. |
-| **Hud (11:18)** | Curse upon those who fabricate lies against Allah. |
-| **Al-Ahzab (33:68)** | Intensified curse on oppressors and disbelievers. |
-| **Al-Qamar (54:42)** | Allah's irresistible might and power. |
-| **Al-Fil (105:1–5)** | Destruction of the army of the elephants. |
-| **Al-Baqarah (2:161)** | Divine curse on those who disbelieve. |
-| **Al-Anfal (8:12)** | Firmness and support against enemies of faith. |
-| **Al-Baqarah (2:191)** | Confrontation against those who cause harm. |
+*For Taskhir — subduing and expelling jinn*
 
-> ⚠️ **Note:** The final 10 verses in this category are for **severe cases** of possession or persistent spiritual affliction. Use with caution and pure intention.
+| Reference | Purpose |
+|-----------|---------|
+| **An-Naml (27:30–31)** | The letter of Sulayman (AS); submission to divine authority |
+| **An-Naml (27:39)** | The jinn who offered to bring the throne before Sulayman rose |
+| **Al-Mu'minun (23:80)** | He who gives life and causes death; to Him is your return |
+| **Ghafir (40:68)** | *"Be," and it is* — His command is truth |
+| **Al-A'raf (7:54)** | His command descends between the heavens and earth |
+| **Aal-e-Imran (3:49)** | Jesus (AS) breathes into clay birds by Allah's permission |
+| **Ar-Rum (30:25)** | His signs in the heavens and earth |
+| **As-Saffat (37:1–182)** | *"The Surah of Power"* — Complete recitation for severe cases |
+| **An-Najm (53:1–62)** | Full Surah; rebuke of those who follow misguidance |
+| **Al-Qamar (54:1–55)** | The Hour has approached; recounting destroyed nations |
+| **At-Tariq (86:1–17)** | Full Surah; by the sky and the night comer |
+
+👁️ *Powerful verses for jinn attacks, supernatural disturbances, and possession cases.*
 
 ---
 
-### 7️⃣ Victory & Overcoming Opponents
-*For Nasr (divine help) and Qahr (dominance) in difficult situations.*
+## 7️⃣ Verses for Victory, Authority & Overcoming Opponents
 
-| Reference | Notes |
-|-----------|-------|
-| **Al-Fath (48:1–3)** | Clear conquest and forgiveness from Allah. |
-| **Al-Anfal (8:19)** | Victory is between you and us; wait, indeed we are waiting. |
-| **Ibrahim (14:15)** | Prayer for the destruction of oppressors. |
-| **Fatir (35:2)** | Whatever mercy Allah opens for people, none can withhold. |
-| **Al-Qasas (28:31)** | Throw down your staff; divine reassurance to Musa (AS). |
+*For Nasr & Qahr — divine help and dominance*
+
+| Reference | Purpose |
+|-----------|---------|
+| **Al-Fath (48:1–3)** | Clear conquest and forgiveness from Allah |
+| **Al-Anfal (8:19)** | *"Victory is between you and us; wait, indeed we are waiting."* |
+| **Ibrahim (14:15)** | Prayer for the destruction of oppressors |
+| **Fatir (35:2)** | Whatever mercy Allah opens for people, none can withhold |
+| **Al-Qasas (28:31)** | Throw down your staff; divine reassurance to Musa (AS) |
 | **Ta-Ha (20:68)** | *"Fear not. Indeed, it is you who are superior."* |
-| **Al-Ma'idah (5:23)** | Reliance upon Allah brings victory. |
-| **An-Nasr (110:1–3)** | Help of Allah and conquest has come. |
+| **Al-Ma'idah (5:23)** | Reliance upon Allah brings victory |
+| **An-Nasr (110:1–3)** | Help of Allah and conquest has come |
+
+🏆 *For seeking victory in difficult situations, overcoming enemies, and requesting Allah's support.*
 
 ---
 
-### 8️⃣ Special Circumstances
+## 8️⃣ Verses for Special Purposes
 
-<details>
-<summary><b>🌀 Removing Satanic Whispers & Doubts (Waswasah)</b></summary>
-
-- **Al-A'raf (7:200–201)** — Seek refuge in Allah; indeed, He is Hearing and Knowing.
-- **Al-Hadid (57:3)** — He is the First and the Last, the Ascendant and the Intimate.
-
-</details>
-
-<details>
-<summary><b>🌬️ Calming Winds & Storms</b></summary>
-
-- **Ta-Ha (20:105)** — They ask you about the mountains; say, "My Lord will blow them away."
-
-</details>
-
-<details>
-<summary><b>👥 Separating Sinners / Disrupting Unlawful Gatherings</b></summary>
-
-- **At-Tahrim (66:5)** — If he divorces you, his Lord will replace you with better wives.
-
-</details>
-
-<details>
-<summary><b>📈 Success, Leadership & Seeking Forgiveness</b></summary>
-
-- **Al-Muzzammil (73:20)** — Recite what is easy of the Quran; know that Allah will forgive and punish.
-
-</details>
-
-<details>
-<summary><b>⛵ Travel Safety (Ships at Sea)</b></summary>
-
-- **Ya-Sin (36:41–44)** — Signs of Allah in the loaded ships that sail by His mercy.
-
-</details>
-
-<details>
-<summary><b>🧘 Spiritual Purification & Solitude (Tazkiyatun-Nafs)</b></summary>
-
-- **Ash-Shams (91:1–15)** — By the sun and its brightness; success is in purifying the soul.
-- **Ad-Duha (93:1–11)** — By the morning brightness; your Lord has not forsaken you.
-- **Al-Inshirah (94:1–8)** — Have We not expanded for you your breast?
-
-</details>
+| Category | Reference | Purpose |
+|----------|-----------|---------|
+| 🌀 **Removing Whisperings & Doubts (Waswasah)** | Al-A'raf (7:200–201) | Seek refuge in Allah; He is Hearing and Knowing |
+| | Al-Hadid (57:3) | He is the First and the Last, the Ascendant and the Intimate |
+| 🌬️ **Calming Winds & Storms** | Ta-Ha (20:105) | *"They ask you about the mountains; say, 'My Lord will blow them away.'"* |
+| 👥 **Separating Sinners / Disrupting Unlawful Gatherings** | At-Tahrim (66:5) | Divine authority over relationships and gatherings |
+| 📈 **Success, Leadership & Seeking Forgiveness** | Al-Muzzammil (73:20) | *"Recite what is easy of the Quran; know that Allah will forgive and punish."* |
+| ⛵ **Protection for Ships at Sea (Travel Safety)** | Ya-Sin (36:41–44) | Signs of Allah in the loaded ships that sail by His mercy |
+| 🧘 **Spiritual Purification & Solitude (Tazkiyatun-Nafs)** | Ash-Shams (91:1–15) | Success is in purifying the soul |
+| | Ad-Duha (93:1–11) | *"Your Lord has not forsaken you."* |
+| | Al-Inshirah (94:1–8) | *"Have We not expanded for you your breast?"* |
 
 ---
 
-### 9️⃣ Five Powerful Verses of Spiritual Strength
-*Al-Wafq Al-Jawharah — traditionally recommended for special spiritual fortification.*
+## 9️⃣ Five Powerful Verses for Spiritual Strength
 
-| Reference | Notes |
-|-----------|-------|
-| **Al-Kahf (18:45)** | The parable of worldly life; reliance on Allah. |
-| **Al-Hashr (59:22)** | He is Allah, other than whom there is no deity. |
-| **Ghafir (40:18)** | Warn them of the approaching Day. |
-| **At-Takwir (81:14–18)** | When the soul is exposed; by the retreating stars. |
-| **Sad (38:1–2)** | By the Quran containing the Reminder; those who disbelieve are in arrogance. |
+*Al-Wafq Al-Zuharah — for special spiritual strength*
 
-✨ Recite these with **pure intention** and in a state of **Wudu** for spiritual strengthening.
+| Reference | Purpose |
+|-----------|---------|
+| **Al-Kahf (18:45)** | The parable of worldly life; reliance on Allah |
+| **Al-Hashr (59:22)** | *"He is Allah, other than whom there is no deity."* |
+| **Ghafir (40:18)** | Warn them of the approaching Day |
+| **At-Takwir (81:14–18)** | When the soul is exposed; by the retreating stars |
+| **Sad (38:1–2)** | By the Quran containing the Reminder |
 
 ---
 
@@ -248,19 +218,6 @@ These form the non-negotiable baseline of daily spiritual protection. Recite eve
 - **Zaad Al-Ma'ad** by **Ibn Al-Qayyim** — Prophetic medicine.
 - **Musnad Imam Ahmad** — Additional authentic narrations.
 
----
-
-## 🎧 Audio Resources
-
-Listen to authentic Ruqyah recitations for continuous protection:
-
-[**📁 Access Ruqyah Audio Files**](https://drive.google.com/drive/folders/1jf5oMFX4_uuNPylIDpu_-Pu1yL3KZusP?usp=sharing)
-
-**Recommended for:**
-- Daily listening during morning/evening Adhkar
-- Playing softly during sleep
-- Background recitation during treatment
-- Sharing with family for collective benefit
 
 ---
 
